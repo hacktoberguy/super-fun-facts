@@ -8,3 +8,6 @@ pagal hoke nacho aur nach ke pagal ho jao'
 daru daru daru daru
 jo na nache usko maru
 swag wali topi meri swag wali topi
+ankhiyo ka hai ye paani bejuban
+dard mera keh paaye naa
+
